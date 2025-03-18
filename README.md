@@ -6,6 +6,7 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
 
 ## Instruções para pessoas novatas
 
+1. [Como começar](https://pes-descalcos.org/run/index.php?n=CorredoresDescal%e7os.ComoCome%e7ar)
 1. Se entende inglês, assista a este maravilhoso vídeo do Dr. Mark Cucuzzella: [Principles of Natural Running](https://youtu.be/zSIDRHUWlVo?si=nLQ0xwtTa-Eg4CZj)
 
 ## Corredores Descalços do Brasil
