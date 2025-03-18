@@ -1,4 +1,4 @@
-# Corredores Descalços e Minimalistas do Brasil
+# [Corredores Descalços e Minimalistas do Brasil](https://bit.ly/4bDxde6)
 
 Clube no Strava (por convite de [Adolfo Neto](https://www.strava.com/athletes/1050605)): <https://www.strava.com/clubs/corridanatural>.
 
