@@ -12,6 +12,7 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
 ## Corredores Descalços do Brasil
 
 ### Leonardo Liporati
+  - [Blog pessoal do Leo](https://correndo-descalco.blogspot.com/) 
   - [Corredores Descalços 2: Leonardo Liporati](https://professoradolfo.blogspot.com/2012/04/corredores-descalcos-2-leonardo.html) 
   - [Leonardo: O Homem que Corre Descalço!](https://transpirando.com/2009/08/26/leonardo-o-homem-que-corre-descalco/)
   - [Sociedade Brasileira pelo Estilo de Vida Descalço](https://pes-descalcos.org/)
