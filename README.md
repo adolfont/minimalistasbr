@@ -7,3 +7,10 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
 ## Instruções para pessoas novatas
 
 1. Se entende inglês, assista a este maravilhoso vídeo do Dr. Mark Cucuzzella: [Principles of Natural Running](https://youtu.be/zSIDRHUWlVo?si=nLQ0xwtTa-Eg4CZj)
+
+## Corredores Descalços do Brasil
+
+### Leonardo Liporati
+  - [Corredores Descalços 2: Leonardo Liporati](https://professoradolfo.blogspot.com/2012/04/corredores-descalcos-2-leonardo.html) 
+  - [Leonardo: O Homem que Corre Descalço!](https://transpirando.com/2009/08/26/leonardo-o-homem-que-corre-descalco/)
+  - [Sociedade Brasileira pelo Estilo de Vida Descalço](https://pes-descalcos.org/)
