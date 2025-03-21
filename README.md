@@ -9,6 +9,9 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
 1. [Como começar](https://pes-descalcos.org/run/index.php?n=CorredoresDescal%e7os.ComoCome%e7ar)
 1. Se entende inglês, assista a este maravilhoso vídeo do Dr. Mark Cucuzzella: [Principles of Natural Running](https://youtu.be/zSIDRHUWlVo?si=nLQ0xwtTa-Eg4CZj)
 
+[Revisão da Literatura sobre Corrida Descalça gerada pelo Claude.ai](arquivos/RevisaodaLiteraturaCorridaDescalcaGeradaPorIA.pdf)
+
+
 ## Corredores(as) Descalços(as) e/ou Minimalistas do Brasil (em construção)
 
 ### Leonardo Liporati
