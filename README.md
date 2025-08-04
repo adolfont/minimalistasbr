@@ -19,3 +19,9 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
   - [Corredores Descalços 2: Leonardo Liporati](https://professoradolfo.blogspot.com/2012/04/corredores-descalcos-2-leonardo.html) 
   - [Leonardo: O Homem que Corre Descalço!](https://transpirando.com/2009/08/26/leonardo-o-homem-que-corre-descalco/)
   - [Sociedade Brasileira pelo Estilo de Vida Descalço](https://pes-descalcos.org/)
+
+### Lucinete de Souza
+  - [Perfil no Instagram](https://www.instagram.com/lucinetedesouzaatleta/)
+  - [Campeã geral feminino da primeira Corrida da Ponte Rio-Niterói](https://www.instagram.com/p/DD68WF3uGzh/)
+
+![Lucinete de Souza correndo descaça](https://github.com/user-attachments/assets/a8ff4784-f4e5-4558-b54a-bcbe7aa65704)
