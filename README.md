@@ -25,3 +25,8 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
   - [Campeã geral feminino da primeira Corrida da Ponte Rio-Niterói](https://www.instagram.com/p/DD68WF3uGzh/)
 
 ![Lucinete de Souza correndo descaça](https://github.com/user-attachments/assets/a8ff4784-f4e5-4558-b54a-bcbe7aa65704)
+
+
+## Entrevistas com corredores e corredoras descalços ou minimalistas 
+
+- [Flavio Velame](https://youtu.be/0Pjr3cpt8h8?si=LDzoMx7x_scQ6meT&sfnsn=wiwspwa)
