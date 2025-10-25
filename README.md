@@ -30,3 +30,4 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
 ## Entrevistas com corredores e corredoras descalços ou minimalistas 
 
 - [Flavio Velame](https://youtu.be/0Pjr3cpt8h8?si=LDzoMx7x_scQ6meT&sfnsn=wiwspwa)
+- [Leonardo Liporati e outros](https://youtu.be/0gRUocHh0aI)
