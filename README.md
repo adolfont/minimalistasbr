@@ -24,7 +24,8 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
   - [Perfil no Instagram](https://www.instagram.com/lucinetedesouzaatleta/)
   - [Campeã geral feminino da primeira Corrida da Ponte Rio-Niterói](https://www.instagram.com/p/DD68WF3uGzh/)
 
-![Lucinete de Souza correndo descaça](https://github.com/user-attachments/assets/a8ff4784-f4e5-4558-b54a-bcbe7aa65704)
+
+<img src="https://github.com/user-attachments/assets/a8ff4784-f4e5-4558-b54a-bcbe7aa65704" alt="Lucinete de Souza correndo descalça" width="40%">
 
 
 ## Entrevistas com corredores e corredoras descalços ou minimalistas 
