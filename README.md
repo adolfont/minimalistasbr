@@ -33,3 +33,4 @@ Temos também um grupo no WhatsApp. Entre em [contato](mailto:adolfo.usp@gmail.c
 - [Flavio Velame](https://youtu.be/0Pjr3cpt8h8?si=LDzoMx7x_scQ6meT&sfnsn=wiwspwa)
 - [Leonardo Liporati e outros](https://youtu.be/0gRUocHh0aI)
 - [Thiago Laulima + Casal Maratonista (Tati e Diniz)]((https://www.instagram.com/reel/C1kuKqrxgpR/)
+- [Bora Conversar - EP7 - Quem disse que precisa de tênis para correr? - FT Casal Maratonista](https://www.youtube.com/watch?v=YyArClKT6Gg)
